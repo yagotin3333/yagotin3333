@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 My name is Igor. I am working as a Desktop Support Tech for some state agencies. Looking to work in Cloud. Recently started a great self-learning curriculum. Will see where it brings me in my career.
 
-Here is my [LinkedIn](www.linkedin.com/in/ihor-yahotin) if you want to be in touch.
+Here is my [LinkedIn](https://www.linkedin.com/in/ihor-yahotin) if you want to be in touch.
